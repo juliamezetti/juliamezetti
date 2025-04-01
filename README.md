@@ -1,5 +1,4 @@
 ## 💜 Olá, meu nome é Júlia!
----
 
 ## ⭐ GitHub Stats
 
